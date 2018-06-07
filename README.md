@@ -1,2 +1,0 @@
-# HELLO-WORLD
-I LOVE J
